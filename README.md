@@ -1,2 +1,0 @@
-# amitabhnewar
-Hi there
